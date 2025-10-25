@@ -1,0 +1,1 @@
+# Szymon_Madeja_74178_L6_Sprawozdanie_LAB2_WstepDoProgramowania-
